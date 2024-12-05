@@ -1,2 +1,0 @@
-# proyec
-proyecto final
